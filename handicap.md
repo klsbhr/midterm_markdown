@@ -21,8 +21,9 @@ Shut your ignorant mouth or end up lined with chalk!
 That was my rap about parking in the handicapped parking spot thank you
 
 
-<embed src="woaaa.mp3" autostart="true" loop="true"
-width="2" height="0">
-</embed>
+<audio controls autostart="true">
+  <source src="woaaa.mp3" type="audio/mpeg">
+Your browser does not support the audio element.
+</audio>
      
 [BACK TO MAIN PAGE](README.md)
