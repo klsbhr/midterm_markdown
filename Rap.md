@@ -28,14 +28,17 @@ Rap makes mario feel like he's a part of something bigger.
 ## Linkz for tha homiez who love rap!
 
 https://g59records.com/home
+
 These jus some lil homies who know how to rap it!
 They rap real good!
 
 https://hiphopdx.com/
 https://www.rap-up.com/
+
 And there's some magazines for you lil bustas!
 
 Never forget!
+
 <img src="I hurt inside.gif"
      alt="I hurt inside"
      style="float: left; margin-right: 10px;" />
