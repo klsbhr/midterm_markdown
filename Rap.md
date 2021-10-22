@@ -1,0 +1,9 @@
+#So yeah, this is my page about how I rap.
+
+###I been doin this since 2018
+> Everybody doubted me...
+> They thought I was joke...
+> But it turns out the joke was on them...
+
+![Awesome Guitar](https://i.pinimg.com/originals/68/57/6c/68576cc37c90ee3b241bcc4ba9a29aae.gif)
+Format: ![I'm so fucking empty](https://i.pinimg.com/originals/68/57/6c/68576cc37c90ee3b241bcc4ba9a29aae.gif)
