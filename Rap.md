@@ -42,3 +42,6 @@ Never forget!
 <img src="I hurt inside.gif"
      alt="I hurt inside"
      style="float: left; margin-right: 10px;" />
+     
+     
+[BACK TO MAIN PAGE](README.md)
