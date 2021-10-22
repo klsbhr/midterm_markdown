@@ -23,7 +23,6 @@ That was my rap about parking in the handicapped parking spot thank you
 
 <audio controls autostart="true">
   <source src="woaaa.mp3" type="audio/mpeg">
-Your browser does not support the audio element.
 </audio>
      
 [BACK TO MAIN PAGE](README.md)
