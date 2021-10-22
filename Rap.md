@@ -24,3 +24,16 @@ Rap makes me feel in touch with my ancestors.
 That is what mario looks like when he raps.
 
 Rap makes mario feel like he's a part of something bigger.
+
+## Linkz for tha homiez who love rap!
+
+https://g59records.com/home
+These jus some lil homies who know how to rap it!
+They rap real good!
+
+https://hiphopdx.com/
+https://www.rap-up.com/
+And there's some magazines for you lil bustas!
+
+Never forget!
+![I hurt inside](/midterm_markdown/I hurt inside.gif)
