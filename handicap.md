@@ -16,7 +16,7 @@ When you see that I park kind of bold
 
 Shut your ignorant mouth or end up lined with chalk!
 
- 
+              
 
 That was my rap about parking in the handicapped parking spot thank you
 
