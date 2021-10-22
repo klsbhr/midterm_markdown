@@ -7,7 +7,7 @@ I am being **one hundred percent serious**
 
 Life is a **prison** I don't feel like a person everything is pointless and meaningless and hopeless
 
-I really feel like no matter how I look at it there's only the inevitability of suffering and death
+In between my flesh and nerves and these artificial walls I eat mono sodium glutamake covered snacks...
 
 ![HAPPY GUY 2](https://lh3.googleusercontent.com/proxy/zhefK0kplywRom-G8ohEV3rPp8bLL8ozKJvDv-X3RSSrsIfoqkK8doCmYsf0nLCHTHVP3GovdAkMPH4C2UjPoM4YSZKK-afUcnP-ITj5top0mlPIdl0pEKOwiw)
 
