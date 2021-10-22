@@ -1,2 +1,1 @@
-# midterm_markdown
-Midterm Project Markdown Keith Sumner IT 1000
+# Yeah, it's Keith Sumner.
