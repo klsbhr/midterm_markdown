@@ -36,4 +36,4 @@ https://www.rap-up.com/
 And there's some magazines for you lil bustas!
 
 Never forget!
-![I hurt inside](/midterm_markdown/I hurt inside.gif)
+! [I hurt inside](/I hurt inside.gif)
