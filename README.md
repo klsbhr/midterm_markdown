@@ -27,7 +27,7 @@ This one is me and my hot girlfriend Rarity that time we went to the moon to see
      
 In this one I am underwater becoming a diplomat for fish.
 
-<img src="vore/pmg"
+<img src="vore.png"
      alt="this is so hot"
      style="float: left; margin-right: 10px;" />
    
