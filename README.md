@@ -6,4 +6,5 @@ I don't have much to say about myself, so I'll let you in on the big picture stu
 * I like cats
 * I think that undertale is pretty cool
 * I don't steal
-* themoonismadeofcheese.md
+* [The Moon is Made of Cheese](themoonismadeofcheese.md)
+* [I like rap](/Rap.md)
