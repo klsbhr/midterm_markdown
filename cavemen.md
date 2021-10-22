@@ -13,7 +13,7 @@ In between my flesh and nerves and these artificial walls I eat mono sodium glut
 
 Quite frankly I'm okay with the idea of hit rock on berry sleep don't think
 
-We gotta quit thinking for ourselves *God is gonna take care of everything* the problems in this world began the second we became self aware
+We gotta quit thinking for ourselves *God is going to take care of everything* the problems in this world began the second we became self aware
 
 Self awareness is the fruit of the knowledge of good and evil, original divine sin, self importance
 
