@@ -31,4 +31,4 @@ In this one I am underwater becoming a diplomat for fish.
      alt="this is so hot"
      style="float: left; margin-right: 10px;" />
    
-I am in the stomach of a bird. I don't rememebr how I got out of *that* one!
+I am in the stomach of a bird. I don't remember how I got out of *that* one!
